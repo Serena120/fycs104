@@ -1,3 +1,3 @@
 # fycs104
 my first project.
-internals exams are going to start. 
+I'm gonna be the hokage.
